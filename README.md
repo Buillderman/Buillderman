@@ -11,7 +11,7 @@ You can talk w me  without using tonetags its okay idont mind, really
 
 I like rarepair sm like chickenpunch, builderblox?? Idk what else but yeah i love ships that doesn't makes any sense. Well let's just say that i like all ships except for - - minorxadult or darkship DNII :mad: or whatever similar to this--  
 
-I dont really have boundaries, everything is fine with me so yeah. Ii love meeting new people like YES im easily getting comfortable with people :D
+I dont really have boundaries, everything is fine with me so yeah. Ii love meeting new people like YES im easily getting comfortable with people 
 
 
 
