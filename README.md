@@ -1,7 +1,7 @@
 ### @ INFO 
 Hii helli!! Here the thigs if you want to know or interact w me! 
 
-Let me tell you that english is not my first, im sorry if i made a mistakes :sobs:
+Let me tell you that english is not my first, sorry if i made any mistakes :sobs:
 
 Gulps,, i mostly cosplaying as roblox fandom characters for example : robloxmyths, robloxarg, roblox youtubers and all roblox fandoms i know! . roblox adminz are the best btw,,  if youre cosplaying as the admin PLZPLZ feel free to interact!( heh ts doesn't mean i won't to interact w the others i just love the admins, okay?.. Okay..) 
 
