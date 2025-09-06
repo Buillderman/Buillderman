@@ -5,7 +5,7 @@ Let me tell you that english is not my first, sorry if i made any mistakes :sobs
 
 Gulps,, i mostly cosplaying as roblox fandom characters for example : robloxmyths, robloxarg, roblox youtubers and all roblox fandoms i know! . roblox adminz are the best btw,,  if youre cosplaying as the admin PLZPLZ feel free to interact!( heh ts doesn't mean i won't to interact w the others i just love the admins, okay?.. Okay..) 
 
-You can talk w me  without using tonetags its okay idont mind, really ( I WANT TO ADD SMTH HRE BUT FORGOT WHAT IS IT GHOEHIDF)
+i dont really talk first soo yeah , litbit scared tbh sweats! ,,, You can talk w me without using tonetags btw! idont mind, 
 
 ### @ BONUS 
 
